@@ -1,1 +1,1 @@
-## University of Eastern Michigan University Association for Computing Machinery
+University of Eastern Michigan ------- Association for Computing Machinery
